@@ -1,0 +1,1 @@
+# geoinformatika-2026
